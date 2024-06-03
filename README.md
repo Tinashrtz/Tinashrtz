@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tinaa
-- 👀 I’m interested in Telecommunications,Neural Networks,randomness
+- 👀 I’m interested in Telecommunications,random process,Neural Networks
 - 📫 tina2003shariat@gmail.com
 - ⚡ Fun fact: Chess fan
 
